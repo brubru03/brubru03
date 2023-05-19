@@ -8,5 +8,5 @@
 
 ### se quise meu insta e meu face
 
-@ibrunasants
+@ibrunasants e
 bruna dos santos 🥀
